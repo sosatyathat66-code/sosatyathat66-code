@@ -35,7 +35,7 @@ Currently, I am learning:
 
 ## Contact
 
-* **Telegram:** @[@Kenxzioo]
+* **Telegram:** [@Kenxzioo]
 * **Email:** [sosatyathat2007@gmail.com]
 
 <!--
