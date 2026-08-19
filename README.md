@@ -1,6 +1,6 @@
 # [My name is That Sosatya]
 
-### [Out going & Go with the flow]
+### [I am a Software Engineer Student]
 
 [Explore new thing and Learning from mistakes]
 
